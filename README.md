@@ -2,6 +2,6 @@
 - 👀 I’m interested in analyze and visualize data.
 - 🌱 I’m currently improve myself every single day.
 - 💞️ I’m looking to 'Data analyst' job.
-- 📫 How to reach me: https://www.linkedin.com/in/surajbobade1
+- 📫 How to reach me: www.surajbobade64@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Introvert
